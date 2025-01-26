@@ -1,1 +1,0 @@
-# khoresh-bademjan-recipe
